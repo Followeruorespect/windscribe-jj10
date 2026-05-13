@@ -1,4 +1,4 @@
-
+Enhance your Windscribe experience with instant Windscribe Service | kill-switch + end-to-end-encryption, the #1 service. Includes kill-switch and end-to-end-encryption for a
 
 
 
